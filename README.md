@@ -133,4 +133,3 @@ Escalate issues when:
 **Hezron Mutua Peter**  
 IT Support Specialist – Microsoft 365 & Remote Workforce Support  
 
-📄 Resume: *Hezron Mutua Peter – IT Support Specialist.pdf*
